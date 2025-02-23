@@ -9,3 +9,25 @@ Office and windows activator:
 Download Repository file and direct access to the folder
 
 NOte: All Credit goes to the KMS Admistration Support
+# Tags:
+#MicrosoftEducation
+#WindowsForStudents
+#Office365ForStudents
+#StudentDiscounts
+#Windows10Education
+#Windows10FreeAccess
+#TechForStudents
+#ProductivityTools
+#FreeSoftwareForStudents
+#OpenSourceAlternatives
+#LinuxAlternatives
+#LibreOffice
+#ApacheOpenOffice
+#FreeOfficeSuite
+#MicrosoftForStudents
+#EducationalDiscounts
+#WindowsInsider
+#FreeWindowsUpgrade
+#TechResourcesForStudents
+#StudentTechTips
+#Windows10Upgrade
